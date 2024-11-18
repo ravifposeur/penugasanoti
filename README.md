@@ -1,6 +1,6 @@
 Hello
+My name is Ravif Gayuh Wicaksono,
+you can call me ravif,
+my uname is Sppsr.
 
-My name is Ravif Gayuh Wicaksono
-my uname is Sppsr
-
-Carpe diem
+thanks.
